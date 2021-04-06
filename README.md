@@ -3,7 +3,7 @@
 #### Personal Information:
 - Father Name: Srinivasa Rao
 - Email Id:satyap.sighakolli@gmail.com
-- Phone No:9848781810
+- Phone No:7995533583
 - Address:Chirala
 
 #### Educational Details:
